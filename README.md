@@ -1,4 +1,4 @@
-### Olá ! Sou o Atonoel Cavalcante Tonhá ! 🤙
+### Gerente | Coordenador | DBA | Analista | Desenvolvedor | 
 
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/atonoel-cavalcante-tonha-a6b776108/)
 
